@@ -1,3 +1,3 @@
-# A-SCHEMA-WAY-A-SCHEMA-WAY
-Schema Text Ending
-" It Is What You Make of It ! "
+# A-SHEMA-WAY-A-SHEMA-WAY
+
+         " It Is What You Make of It ! "
